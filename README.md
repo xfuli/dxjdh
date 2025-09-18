@@ -4,7 +4,7 @@
 
 高峰时段会有卡顿，请用户们耐心等候
 
-最新地址：https://daxiangjiaodh.xyz/
+最新地址：https://daxiangjiaodh.cc/
 
 ✉ 發布郵箱：dxjfuli@gmail.com
 发送任意邮件到此邮箱可自动获取最新地址
